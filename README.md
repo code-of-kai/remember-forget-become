@@ -1,4 +1,4 @@
-Hi, my name is Kai Taylor, and these are my submissions to The O’Shaughnessy Fellowship, 2024. 
+Hi, my name is Kai Taylor, and these are my submissions to the final cohort of Write of Passage. 
 
 I recommend reading them in this order:
 - I am Human No Longer but Not Yet Dust and Ash
